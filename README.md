@@ -1,2 +1,1 @@
 ﻿# vefurinn-minn
-# vefurinn-minn
